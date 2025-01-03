@@ -104,3 +104,8 @@ This dashboard helps clients understand the patterns and insights related to roa
 
 ---
 
+## LinkedIn Post link 
+
+https://www.linkedin.com/posts/rajavardhan-reddy-billakurthi-75ab45277_hello-connections-i-am-happy-to-share-my-activity-7124300289855148032-esMI?utm_source=share&utm_medium=member_desktop
+
+
